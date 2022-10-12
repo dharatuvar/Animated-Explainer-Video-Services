@@ -1,6 +1,6 @@
 ##Animated Explainer Video Services
 
-Establish a strong brand identity by seeking ***(Animated Explainer Video Services)[https://meetanshi.com/animated-explainer-video-services.html]*** from Meetanshi that helps you in narrating stories, conveying the message and build trust.
+Establish a strong brand identity by seeking ***[Animated Explainer Video Services](https://meetanshi.com/animated-explainer-video-services.html)*** from Meetanshi that helps you in narrating stories, conveying the message and build trust.
 
 Take the benefit of Meetanshi’s Animated Explainer Video Services to create a strong brand image amongst the target audience. Using the video series, you can influence the audience, and provide them information about the product.
 
@@ -45,6 +45,6 @@ Our creative designers create different types of explainer videos like:
 *       Unlimited revisions
 *       High-definition videos
  
-For more information, visit: ***(https://meetanshi.com/animated-explainer-video-services.html)[https://meetanshi.com/animated-explainer-video-services.html]***
+For more information, visit: ***[https://meetanshi.com/animated-explainer-video-services.html](https://meetanshi.com/animated-explainer-video-services.html)***
  
 
